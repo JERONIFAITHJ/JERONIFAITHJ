@@ -1,1 +1,1 @@
-Hey there, I’m Jero, an undergraduate and a fresher looking for an opportunity to express myself. Began exploring the amazing front-end tech back in 2021. Who gets to see their creation comes to life unlike us front-end folks? And for the same reason I'm here. U feel the same right? RIGHT?!
+
